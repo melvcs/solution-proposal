@@ -1,1 +1,1 @@
-# solution-proposal
+proposal to help businesses
